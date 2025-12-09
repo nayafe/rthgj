@@ -1,3 +1,4 @@
+.ip
 piğ
 ğpi
 pşkği
