@@ -1,3 +1,4 @@
+piğ
 ğpi
 pşkği
 jpşşi
